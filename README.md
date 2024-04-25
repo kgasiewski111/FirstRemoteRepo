@@ -1,1 +1,1 @@
-# Paragon z warzywniaka
+# Paragon z warzywniaka.
